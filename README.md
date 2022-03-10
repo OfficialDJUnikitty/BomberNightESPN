@@ -1,2 +1,9 @@
 # BomberNightESPN
-ESPN INTERNATIONAL WINTER SPORTS 2002 X SOUND SPACE CUSTOM CHART - BOMBER NIGHT (FIGURE SKATING OST)
+Song: Bomber Night
+
+ARTIST: ESPN International Winter Sports 2002 OST
+
+Chart made with: Sound Space Quantum Editor 
+
+GAMEPLAY OF CHART: https://youtu.be/xR8OEJAym0M 
+
